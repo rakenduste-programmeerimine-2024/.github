@@ -11,7 +11,7 @@
 **Discord**: https://discord.gg/WmUVMabc
 
 **Tunnid**:
-* Monday 14:15 - 17:45
+* Esmaspäeviti 14:15 - 17:45
 
 **Õppejõud**:
 * Raimo Pregel / raimopew
