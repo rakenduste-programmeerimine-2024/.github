@@ -8,7 +8,7 @@
 
 **Kodutööd**: https://classroom.google.com/c/NzEwMzMzNTA1MDAx?cjc=dwf4oyy
 
-**Discord**: https://discord.gg/WmUVMabc
+**Discord**: https://discord.gg/3NCreGZa
 
 **Tunnid**:
 * Esmaspäeviti 14:15 - 17:45
